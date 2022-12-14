@@ -18,7 +18,7 @@ export const handler: Handlers = {
         if (post && !post.date) {
           try {
             const res = await fetch(
-              `https://api.github.com/repos/timsusa/fresh-blog-example/commits?path=posts/${dir}/${post
+              `https://api.github.com/repos/timsusa/tim-susa-dj-playlists/commits?path=posts/${dir}/${post
                 ?.url}.md`,
             );
             const payload = await res.json();
