@@ -1,5 +1,6 @@
 # Tim Susa´s DJ Playlists: All kinds of House Music
 Here you will find all latest House Playlists with artists name and artist track.
+<a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
 ## African and Organic House - 2022-12-14
 

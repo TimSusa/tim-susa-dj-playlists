@@ -1,5 +1,6 @@
 # Tim Susa´s DJ Playlists: All kinds of Techno Music
 Here you will find all latest Techno Playlists with artists name and artist track.
+<a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
 ## Detroit/Chicago/Berlin Techno  - 2022-12-14
 
@@ -20,3 +21,4 @@ Body Parts (Original Mix)	bw
 Sentience (Original Mix)	Connor Wall	
 Operational Bypass (Original Mix)	Drop-E	
 Deep (Original Mix)	dc11	
+
