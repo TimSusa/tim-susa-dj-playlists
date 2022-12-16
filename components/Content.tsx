@@ -29,11 +29,11 @@ export default function Content(props: ContentProps) {
                 <div
                   class={tw`flex items-center justify-center py-4`}
                  >
-                  <img
-                    class={tw`lg:h-1/2 sm:h-1/2 h-1/2 lg:w-1/2 sm:w-1/2 w-1/2 bg-cover bg-center`}
+                  {/* <img
+                    class={tw`lg:h-1/2 sm:h-1/2 h-1/2 lg:w-1/2 sm:w-1/2 w-1/2 bg-cover bg-center`}s
                     src={`/thumbnails/${post?.url}.jpg`}
                     alt={post?.title}
-                  />
+                  /> */}
                 </div>
                 <div class={tw`my-4 mx-3 space-y-4`}>
                   <span
