@@ -15,7 +15,7 @@ export default function Navbar(props: NavbarProps) {
         <img src="/logo.svg" alt="Tim Susa's Logo" class={tw`h-8 w-auto`}/>
       </a>
       {props.sections.map((section) => (
-        <a href={`/${section}`} class={tw`text-white my-0 capitalize text-lg hover:text-red-400 hidden md:block`}>
+        <a href={`/${section}/playlists-${section.toLocaleLowerCase()}`} class={tw`text-white my-0 capitalize text-lg hover:text-red-400 hidden md:block`}>
           {section}
         </a>
       ))}
