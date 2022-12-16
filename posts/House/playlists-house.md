@@ -4,83 +4,162 @@ Here you will find all latest House Playlists with artists name and artist track
 
 ## African and Organic House - 2022-12-14
 
-1.	Caldera (UK) - In This House (Extended Mix) [Dopewax]		125.00	Gm	     	06:25	2022-10-17	1	2022
+Caldera (UK) - In This House (Extended Mix) [Dopewax]		
 
-2.	LaTique - The Dream [Atjazz Record Company]		118.00	Fm	     	05:31	2022-10-18	1	2022
+LaTique - The Dream [Atjazz Record Company]		
 
-3.	Will U (Original Mix)	Nice Girl	119.26	C	     	05:02	2022-10-17	2	2022
+Will U (Original Mix)	Nice Girl	
 
-4.	Mariano Montori - Clarity [Random Rec]		120.00	Am	     	07:27	2022-10-17	2	2022
+Mariano Montori - Clarity [Random Rec]		
 
-5.	Moving Picture (Original Mix)	De'Real Musiq	115.00	Am	     	07:30	2022-10-17	1	2022
+Moving Picture (Original Mix)	De'Real Musiq	
 
-6.	Mi Camino (Niko Garcia Remix)	DJ Lemy	118.00	Am	     	07:42	2022-10-17	1	2022
+Mi Camino (Niko Garcia Remix)	DJ Lemy	
 
-7.	Mundos Sutis - Solar Logos (Original Mix) [Seven Villas]		120.00	Am	     	05:52	2022-10-17	1	2022
+Mundos Sutis - Solar Logos (Original Mix) [Seven Villas]		
 
-8.	Musa feat Velemseni (Original Mix)	!Sooks	120.00	Am	     	06:18	2022-10-17	1	2022
+Musa feat Velemseni (Original Mix)	!Sooks	
 
-9.	Nicolas Soria - Princess Abigail [Dreamers]		120.00	Am	     	05:55	2022-10-17	1	2022
+Nicolas Soria - Princess Abigail [Dreamers]		
 
-10.	Ordinary (live version)	Kollektiv Turmstrasse	125.00	Am	     	12:49	2022-10-17	1	2013
+Ordinary (live version)	Kollektiv Turmstrasse	
 
-11.	Nebuchadnezzar (Original Mix)	Udumusic	118.00	Am	     	07:08	2022-10-17	1	2021
+Nebuchadnezzar (Original Mix)	Udumusic	
 
-12.	Ola (Original Mix)	Birds ov Paradise	120.00	Am	     	04:42	2022-10-17	1	2022
+Ola (Original Mix)	Birds ov Paradise	
 
-13.	Interlude 'Westertoren'	Monica Rypma	147.01	Bb	     	01:21	2022-10-18	0	2022
+Interlude 'Westertoren'	Monica Rypma	
 
-14.	Marianghela (Original Mix)	Mr. Thruout	118.00	Dm	     	05:53	2022-10-18	0	2022
+Marianghela (Original Mix)	Mr. Thruout	
 
-15.	Glide	DJ Cocodil	122.00	Fm	     	06:14	2022-10-07	0	2022
+Glide	DJ Cocodil	
 
-16.	Mwari Wa Maitu	Antonio Ocasio, Tina Ardor	125.00	Am	     	08:16	2022-10-07	0	2022
+Mwari Wa Maitu	Antonio Ocasio, Tina Ardor	
 
-17.	Mamaye feat Soulful G, Mgiftoz SA and Mzu M (Original Mix)	Busta 929	114.00	Bbm	     	06:13	2022-10-18	0	2022
+Mamaye feat Soulful G, Mgiftoz SA and Mzu M (Original Mix)	Busta 929	
 
-18.	Les Gout (DBN Gogo & Felo Le Tee Remix)	Rampa, chuala	113.00	Fm	     	05:44	2022-10-18	0	2022
+Les Gout (DBN Gogo & Felo Le Tee Remix)	Rampa, chuala	
 
-19.	Joeski - Backa [Maya Records]		124.00	F#m	     	06:27	2022-10-07	0	2022
+Joeski - Backa [Maya Records]		124.
 
-20.	Hooked For Life Remixes (Carlos Francisco More Drums Mix)	Carlos Francisco	125.00	Gm	     	06:15	2022-10-17	0	2022
+Hooked For Life Remixes (Carlos Francisco More Drums Mix)	Carlos Francisco	
 
-21.	Isangoma (Original Mix)	Dr Feel, Michele Cartello	120.00	F#m	     	06:57	2022-10-07	0	2022
+Isangoma (Original Mix)	Dr Feel, Michele Cartello	120.
 
-22.	Feel it Now feat Jackie Queens (Cornelius Remix)	Cornelius SA	120.00	Fm	     	06:43	2022-10-17	0	2022
+Feel it Now feat Jackie Queens (Cornelius Remix)	Cornelius SA	
 
-23.	Heliotropium (Yulia Niko Remix)	Lonya, Kadosh (IL)	124.00	Dm	     	07:37	2022-10-07	0	2021
+Heliotropium (Yulia Niko Remix)	Lonya, Kadosh (IL)	
 
-24.	Note To Jerusalem (feat Thami Wengoma & DJ Touch SA)	DJ Alaska	126.00	Gm	     	05:46	2022-10-17	0	2022
+Note To Jerusalem (feat Thami Wengoma & DJ Touch SA)	DJ Alaska	
 
-25.	Bodaishin - Keanu (Extended Mix) [Songuara]		120.00	Gm	     	08:03	2022-10-17	0	2022
+Bodaishin - Keanu (Extended Mix) [Songuara]		
 
-26.	Afrikan King (Original Mix)	Dr Feel, Ele Producer	120.00	Gm	     	07:24	2022-10-07	0	2022
+Afrikan King (Original Mix)	Dr Feel, Ele Producer	
 
-27.	DIBIDABO - Amadeya [YION]		117.00	Fm	     	07:18	2022-10-17	1	2022
+DIBIDABO - Amadeya [YION]		
 
-28.	Kamoreng (Original Mix)	Aaron Sevilla	123.00	Em	     	06:30	2022-10-07	0	2022
+Kamoreng (Original Mix)	Aaron Sevilla	
 
-29.	Ciin (Original Mix)	KIRIK	125.00	Ebm	     	08:11	2022-10-18	0	2022
+Ciin (Original Mix)	KIRIK	
 
-30.	Dear Mila and Adrian de Dios - Glaciares de Mexico (Extended Dub) [Lupulo Records] - 6A - 122.00		122.00	Gm	     	06:11	2022-10-07	0	0
+Dear Mila and Adrian de Dios - Glaciares de Mexico (Extended Dub) [Lupulo Records] - 6A - 122.00		
 
-31.	Coflo, ROOTS2000 - Aye Afrika (Coflo Deep House Dub Mix) [Ocha Mzansi]		121.99	Fm	     	07:10	2022-10-07	0	2022
+Coflo, ROOTS2000 - Aye Afrika (Coflo Deep House Dub Mix) [Ocha Mzansi]		
 
-32.	Africani (Original Mix)	Dudu Capoeira	122.00	Abm	     	05:46	2022-10-17	0	2022
+Africani (Original Mix)	Dudu Capoeira	
 
-33.	Dukun (Original Mix)	Senzala	126.00	Gm	     	07:10	2022-10-17	0	2022
+Dukun (Original Mix)	Senzala	
 
-34.	Microwave This Thing	Saliva Commandos	127.00	E	     	05:27	2022-10-07	0	2021
+Microwave This Thing	Saliva Commandos	
 
-35.	1900 (Original Mix)	Victor Luciano	126.00	Cm	     	06:21	2022-10-07	0	2021
+1900 (Original Mix)	Victor Luciano	
 
-36.	Sted E & Hybrid Heights - Culture (Norty Cotto Dub Mix) [Naughty Boy Music] - 4A - 124.00		124.00	Abm	     	05:10	2022-10-07	0	0
+Sted E & Hybrid Heights - Culture (Norty Cotto Dub Mix) [Naughty Boy Music] - 4A - 124.00		
 
-37.	Burundi Tribe (Oscar P Rework)	DJ Flaton Fox, DJ FBI	122.00	F	     	06:06	2022-10-17	0	2022
+Burundi Tribe (Oscar P Rework)	DJ Flaton Fox, DJ FBI	
 
-38.	Enzo - La Vida [Groove Soul Records] - 5A - 124.00		124.00	Gm	     	04:43	2022-10-07	0	2021
+Enzo - La Vida [Groove Soul Records] - 5A - 124.00		
 
-39.	Oscar P - Time Machine (Casamena Afro Mix) [Open Bar Music] - 4A - 125.00		125.00	Fm	     	11:58	2022-10-07	0	2021
+Oscar P - Time Machine (Casamena Afro Mix) [Open Bar Music] - 4A - 125.00		
 
-40.	August, DJ Lugo, Gustavo Dominguez, Alex Abreu - Mufasa [Made In Miami]		124.00	Abm	     	06:11	2022-10-07	0	2022
+August, DJ Lugo, Gustavo Dominguez, Alex Abreu - Mufasa [Made In Miami]		
+
+
+
+## House2022-08-19 
+
+- Turu Anasi - My Thoughts Behind (Original Mix) (Cosmic Awakenings)
+
+- Ottis Blake - Simplicity (Jazzed)
+
+- RoneeDeep - Holy (Original Mix) (Do It Now Recordings)
+
+- UPZ, Bobby Saint - Mind, Body (soWHAT)
+
+- Teaman - Love (Original Mix) (Deep Afrika Records)
+
+- Mr.Tune, Kareem Shabazz - Make me Wanna Holla (Dub&Boom)
+
+- ThamzaONR, Chabby-Nice - Reminisce (Original Mix) (Organized Noize Recordingz)
+
+- Crackazat - Simple Things (Freerange)
+
+- Monocles, Slezz, Room 806, Holi - When I'm With You (TekniQ, Fannie deep Vocal Mix) (Room 806 Music)
+
+- Jay Caruso - Come Around (Jay Soulful Instrumental) (IRMA DANCEFLOOR)
+
+- Mr. Flip - Hit Different (NDATL Style Remix) (Yoruba Records)
+
+- Dave Anthony, Aleysha Lei - Into The Deep (Original Mix) (Newtown Recordings)
+
+- Eric Redd - It's Your Thing (Knox Club Mix) (Carrillo Music LLC)
+
+- LH production - Bright Prospects (Stomp House Records)
+
+- Ralphi Rosario, The Shamanic, Craig J Snider, DJ Lady D, Eric Kupper, - FK Always (Extended Version) (Wake Up! Music)
+
+- Scott Diaz, LOA. - Somewhere Else (Franck Roger Remix) (Sub Urban)
+
+- Sy Sez, His Bitter Truth - Don't You Worry (Pablo Martinez Remix) (Raising Records)
+
+- Devon Howard - Forever Always (DjPope Funkhut Dub Vocal) (FunkHut Records)
+
+- Eddie Nicholas, Yasin Radee - THANK YOU (VOCAL REWORK) (Slaag Records)
+
+- Frankie Trial - Lost In Love (kluBasic Records)
+
+- An On Bast, Deeplomatik - Night Talks (SpekuLLA Records)
+
+- Babs Presents - Jazz Nights In E15 (Instrumental Mix) (Smashing Trax Records)
+
+- Deep Quency, Akhona, Jabulile, Havocin - Desire (Original Mix) (Deep Resolute (PTY) LTD)
+
+- DeepBlue SA - Annonymous (Audio Keys Rec)
+
+- B-liv - Oaakk (Deep Side) (Freshly Cooked Music)
+
+- Body Moods - Agitate It (B.T.S. 'Groove' Dub) (Running Back)
+
+- Patrice Scott, Horatio Luna - Boom Boom (Patrice Scott Remix) (The Jazz Diaries Rec.)
+
+- CJ Keys - Children's Play Ground (Original Mix) (Iron Rods Music)
+
+- BlaQ Afro-Kay - Dark Phoenix (Original Mix) (FonikLab Records)
+
+- B3cks - Pre-Drinks (Extended Edit) (Rollerblaster Records)
+
+- B&S Concept - Feel Good (Cris Herrera Remix) (Large Music)
+
+- AirplaneMode - Too Exposed (Original Mix) (She's Super)
+
+- ALXSML - Feelin U (Original Mix) (WAREBLUES)
+
+- Mark Broom, Riva Starr, Star B - Fire (Ron Bacardi Remix) (Snatch! Records)
+
+- Umosia - Love Don't Let Me Down (A Classic Man Dub) (Nervous Records)
+
+- Daniel Steinberg - Free Love (Original Mix) (Arms & Legs)
+
+- Demarkus Lewis - Center Gravity (Main Mix) (Ohmelya Music)
+
 
