@@ -31,6 +31,7 @@ export default function Content(props: ContentProps) {
                  >
                   {/* <img
                     class={tw`lg:h-1/2 sm:h-1/2 h-1/2 lg:w-1/2 sm:w-1/2 w-1/2 bg-cover bg-center`}
+                    class={tw`lg:h-1/2 sm:h-1/2 h-1/2 lg:w-1/2 sm:w-1/2 w-1/2 bg-cover bg-center`}s
                     src={`/thumbnails/${post?.url}.jpg`}
                     alt={post?.title}
                   /> */}

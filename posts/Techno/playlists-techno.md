@@ -5,17 +5,11 @@ Here you will find all latest Techno Playlists with artists name and artist trac
 ## Detroit/Chicago/Berlin Techno  - 2022-12-14
 
 Tobias Freund, Recent Arts, Valentina Berthelon - Just Be There [REITEN]		
-
-All the Way (Original Mix)	- Developer	
-
-Off World Vehicles -	Kassian	
-
-Seaweed (Original Mix)	- Inigo Kennedy	
-
-Genuine (Original Mix)	- Inigo Kennedy
-
-Divergence	- Altinbas, Cirkle	
-
+All the Way (Original Mix)	Developer	
+Off World Vehicles	Kassian	
+Seaweed (Original Mix)	Inigo Kennedy	
+Genuine (Original Mix)	
+Divergence	Altinbas, Cirkle	
 Marcal - Never Wrote This [Enemy Records]		
 
 Mineral Trait (Original Mix) -	Azogiař	
@@ -116,5 +110,3 @@ Mariano A.S - Green Wave (Original Mix)
 Yate - Hall [Project London Records].
 
 Nacho Bolognani - Home [Momentz Records].mp3
-
-Charly Angelz - Liquid Journey (Original Mix)
