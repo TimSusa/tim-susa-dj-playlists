@@ -3,6 +3,7 @@ Here you will find all latest House Playlists with artists name and artist track
 <a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
 ## African and Organic House - 2022-12-14
+Mix can be found here: https://soundcloud.com/tim-susa/tim-susa-clrd16
 
 Caldera (UK) - In This House (Extended Mix) [Dopewax]		
 
@@ -86,7 +87,7 @@ August, DJ Lugo, Gustavo Dominguez, Alex Abreu - Mufasa [Made In Miami]
 
 
 
-## House2022-08-19 
+## House 2022-08-19 
 
 - Turu Anasi - My Thoughts Behind (Original Mix) (Cosmic Awakenings)
 
@@ -162,4 +163,73 @@ August, DJ Lugo, Gustavo Dominguez, Alex Abreu - Mufasa [Made In Miami]
 
 - Demarkus Lewis - Center Gravity (Main Mix) (Ohmelya Music)
 
+### House and Stuff 2022 - 04 - 24 
+Mix can be found here https://soundcloud.com/tim-susa/tim-susa-outer-limits-mix-2022-04-23
 
+Endrew - Release (Second State)
+
+Prins Thomas - Film 001 (Slapp Finale) (Prins Thomas Musikk)
+
+Habibi Grooves - Imaginary Friends (Lisztomania Records)
+
+Monsieur Jean - Glued (Remastered) (somanymusic)
+
+Sure Pleasure - Don't Shake (Moscow Fashion, Volume 1: Kafehouse & Lounge Compilation)
+
+Magic Source - Genius Of Love (Favorite)
+
+Coastal Deep - Euphoria (Coastal Dub Mix) (Moiss Music Black)
+
+Fka Mash - Lonely Jester (Stimming Remix) (Atjazz Record Company)
+
+Manuel Sahagun - Ritmo Pandemico (Freerange Records)
+
+Jack-Key - Pray For Love (Khirbet Qeiyafa's Herbet Played Low Version) (Volume Down Entertainment)
+
+Prins Thomas, John Carroll Kirby - Cool Coronas feat. John Carroll Kirby (Prins Thomas Musikk)
+
+Deep Acolytes - Dusk To Dawn (Deeper Mix) (Deeper Interludes Recordings)
+
+Ahau - Pirámide (Orignal Mix) (Tchamma Yapu Records)
+
+Mitiko - Where Have You Been (Original Mix) (Fruity Flavor)
+
+Donald-tek - The Transition (Iron Rods Music)
+
+Tea White, Xabizo - Lullabies For You (Stay True Sounds)
+
+undefined - Haldo - I Don t Know Why (feat Bea) (Haldo Re Touch) [Proceed Records] - 1A - 110.12 (undefined)
+
+DJ Merci - Slow Rising (Jank Remix) (DOBRO)
+
+undefined - Dino Scarfone - Try It Again (Haldo Re Touch) [Proceed Records] - 5A - 112.00 (undefined)
+
+undefined - Tim Susa - Is that a Dream? 2022-04-23 0035 (undefined)
+
+Guy Contact - Pyramid Scheme (Original Mix) (Tchamma Yapu Records)
+
+King Deetoy - Ghetto Kings (The Ashmed Hour Records)
+
+Donald-tek - Donald-tek - Healing Wounds [Iron Rods Music] - 2A - 113.00 (Iron Rods Music)
+
+Jazoul - 26 April Special Dedication to Jezreel (Jazoul's Anniversary Re-master) (Dung Beetle Records)
+
+Xclusive kAi, NisapaMusiQ - Ultra Visionary Dub (Raw Dub Mix) (Deeper Interludes Recordings)
+
+DJ Dreas, Sezou - ON MY MIND (Original Mix) (Paradise Sound System)
+
+Ercos Blanka - Old Trick (Original Mix) (Seven Villas)
+
+HDSN - Back In The Days (Original Mix) (NBAST)
+
+La Four SA - Radical Redemption - Bonus Track (Original Mix) (Selville Records)
+
+Lorca - Colraine (Shall Not Fade)
+
+Manuel Costela - Deep Stab (Krippsoulisc Remix) (DeepWit Recordings)
+
+Reemash - Surreal (Original Mix) (BrokenSoul Records)
+
+Underground Oak - Broken Soul (AfriNative Soul)
+
+DJ P - Too Sincere (Extended Mix) (Last Night On Earth)
