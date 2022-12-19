@@ -2,6 +2,84 @@
 Here you will find all latest Techno Playlists with artists name and artist track.
 <a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
+## Detroit/Chicago/Berlin Techno  - 2022-12-19
+
+Marcelo Antonio - Ocean's Outro (Original Mix) [Antiterra]
+
+Arthur Robert - Wither (Original Mix) [Knowledge Imprint]
+
+Angioma - Side Effects (Franz Jäger Remix) [Room Trax] - 10A - 140.00
+
+Audio Units - Vostok Space Program (Original Mix) [[R]3volution]
+
+Bensaid - Just Another One (Original Mix) [Claroscuro Records] - 6A - 132.00
+
+Ackermann - Karma Will Get You (Original Mix) [Suara]
+
+Alessandro Grops - Enemy (Original Mix) [Suara]
+
+Arnaud Le Texier - Monotone (Original Mix) [Children Of Tomorrow]
+
+ASKE - Zero One (Original Mix) [LXVIII]
+
+Booz - Never Alone (Original Mix) [Antiterra]
+
+Audio Units - Core Meltdown (Original Mix) [[R]3volution]
+
+BLK BETTY - Get Back (Original Mix) [Suara]
+
+Anfisa Letyago - Not There (Chris Liebing Remix) 
+
+A.Paul and DJ Dextro - Get Up (Original Mix) [Naked Lunch] - 11A - 138.00
+
+Benales - Ooze (Original Mix) [Inguma]
+
+Bebhionn - Dark Planet (Original Mix) [SUB TL]
+
+B. Riley - Enter The Ring (Psyk Remix) [CMND CTRL]
+
+Anja Schneider - Aura feat Sophie Hunger (Pan-Pot Remix) [Sous 
+Music]
+Bluntac, Nrico - Endless (Original Mix) [AMPED]
+
+Anika Kunst - Mental Shaking (Original Mix) [Symbolism] 
+
+Alarico - Pain of Onizuka's Forgotten souls (Original Mix) 
+[Diffuse Reality Records]
+
+CONFUSION (RASEREI) - Post Quantum (Original Mix) [SYXT]
+
+Benjamin Mull - Mother (Original Mix) [H-Productions]
+
+3phazegenerator - Signal (Original Mix) [Interruption Records]
+
+AnDrew DeXx - Check This Out (Original Mix) [Pure Tunes]
+
+Axones - Eclectique (Original Mix) [[R]3volution Uncod3d]
+
+Ben Ritz - Do Make Me Strange (Original Mix) [Fixed Rhythms]
+
+Ancient Astronaut Theorists - Alien Brain (Original Mix) [Rhythm 
+Werk]
+Belocca - Tribal Ritual (Original Mix) [Mainground Music]
+
+BRÄLLE - Mind Control (Original Mix) [Take More Music Records] - 
+8A - 136.00
+
+Albert Salvatierra - Happy Aliens Talk (Original Mix) [Unterwelt]
+
+CRAVO, Vil - Newkeys (Original Mix) [Hayes]
+
+Audio Units - Toxin Refinery (Original Mix) [[R]3volution]
+
+Asquith - Hardcore '94 (Original Mix) [Higher Power] - 2A - 142.00
+
+Autokrat - An Appreciation for Loneliness (Original Mix) [Alhena 
+Records]
+Bluntac, Cziby - Seduction (Original Mix) [Clacking Drums Music]
+
+
+
 ## Detroit/Chicago/Berlin Techno  - 2022-12-14
 
 Tobias Freund, Recent Arts, Valentina Berthelon - Just Be There [REITEN]		
