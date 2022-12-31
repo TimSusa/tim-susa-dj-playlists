@@ -2,6 +2,145 @@
 Here you will find all latest House Playlists with artists name and artist track.
 <a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
+## Tim Susa´s Playlist MyHouseRadio.fm NYE 2022 Marathon
+DJ-dsl-let there be rock - 12B - 98.63.mp3 - 4.71min
+
+09 Show You The Way (feat. Micheal McDonald & Kenny Loggins).flac - 3.56min
+
+06 - mulatu astatke - yegelle tezeta.flac - 3.23min
+
+The Peronists - Rural Beats (Original Mix) [Folcore Records].mp3 - 2.56min
+
+RAW ELEMENTS Steve Bug Volksworld -07- kurze pause - 5A - 101.02.mp3 - 3min
+
+08 - Duinne (06 36) - 9B - 98.06.mp3 - 6.58min
+
+D2.Le Chant - 8B - 137.37.flac - 2.1min
+
+Deadbeat, Sa Pa - Forbidden City [BLKRTZ].mp3 - 6.75min
+
+b1-slope--keepingitup (lars behrenroth remix)-kw - 3A - 110.61.mp3 - 7.28min
+
+Deadbeat, Sa Pa - Yume No Serei [BLKRTZ].mp3 - 7.36min
+
+bdtom - Null Gravity (Original Mix) [Plastic City FX].mp3 - 6.9min
+
+Errol.ex - 1997 (Original Mix) [Colour In Music].wav - 6.41min
+
+Da Lex Dj - Little Helper 388 3 (Original Mix) [Little Helpers].wav - 7.03min
+
+202 - Held (Dauwd Remix) - 5A - 118.00.flac - 6.03min
+
+POKERFLAT CD 010 Jeff Samuel get it - 6A - 118.99.mp3 - 5.8min
+
+101 Stimming - Prepare - 6A - 119.28.flac - 6.26min
+
+09. Ralph Sliwinski - Thatz In My Brain - 11A - 119.99.flac - 1.06min
+10. 
+A1_And_should_we_need_to_fight_them - 8A - 120.00.mp3 - 5.26min
+
+13. Trentemoller & DJ Tim - An Evening With Bobi Bros - 11A - 120.00.flac - 4min
+14. 
+15. 02 - Bellona - 12A - 120.00.mp3 - 5.63min
+
+13 - Mount Kimbie - Bells_5 - 11A - 120.00.flac - 4.41min
+
+12 B.U.R.T. (Inside) feat. Paul Joseph - 5A - 120.00.mp3 - 6.45min
+
+The Idealist - Elevation Dub feat Goran Kajfeš (Original Mix) [Höga Nord Rekords] - 5A - 120.00.mp3 - 6.03min
+
+POKERFLAT CD 010 Jackmate vs Nick Reiff every step - 4A - 120.00.mp3 - 4.9min
+
+15. Stewart Walker - Fernbank 91 (Robag's Okkulafunk Remikks) - 3A - 120.00.flac - 3.73min
+16. 
+SND & RTN - Ice (Original Mix) [Planet Rhythm].mp3 - 6.2min
+
+Luigi Tozzi - Sospensione (Original Mix) [Hypnus Records].mp3 - 8.2min
+
+KeyZee - Riding On The Sun (Original Mix) [Crossworld Academy] - 8A - 118.00.wav - 6.51min
+
+1605, AntiQSoul - Hoover Synths [SixteenZeroFive Recordings].mp3 - 6.36min
+
+07. Illumination (feat. Roisin Murphy).flac - 4.51min
+8. 
+Adam Hadari - My Side (Original Mix) [Moiss Music Black] - 11A - 120.00.wav - 6.38min
+
+J.A.E - LOVE ME RIGHT (HARRY MINDGAME CARBON DEEP DUB REMIX) [Mindlab Recordings].wav - 6.68min
+
+Mallin - I'm Not Crazy (Original Mix) [Kuudos] - 4A - 124.00.wav - 5.43min
+
+Visions Recordings - Jon Dixon - The New Tomorrow EP - 03 The New Tomorrow - 3A - 124.00.flac - 6.73min
+
+Tea White, Xabizo - Lullabies For You [Stay True Sounds].mp3 - 7.3min
+
+Coastal Deep - Adventure Time (Coastal Dub Mix) [Moiss Music Black].wav - 6.1min
+
+DJ-dsl-let there be rock - 12B - 98.63.mp3 - 4.71min
+
+02 - Archangel.flac - 3.96min
+
+Interface Palm - Readymade [Broken District].mp3 - 4.36min
+
+Black Sonix - Danny's Jam (Sean McCabe Moody Dub) [Good Vibrations Music].mp3 - 5.63min
+
+Zetbee - In My Soul (Original) [Plastik People Digital].mp3 - 6.36min
+
+Phonika - Bring Me Love (Original Mix) [Smashing Trax Records].mp3 - 5.8min
+
+DJ Fudge - Get On Your Feet [Guesthouse].mp3 - 5.9min
+
+Chemise - She Can't Love You [CLASSICS BY KOOKOO].wav - 5.41min
+
+01 - Soul Makossa.flac - 4.78min
+
+
+## African and Organic House - 2022-12-30
+Oscar P, Dennis Red - Mine (Main Mix) [Open Bar Music].wav - 5.03min
+
+Feki Station - Ligh Ezzaman (Original Mix) [YHV Records].mp3 - 7.18min
+
+Will Alonso - Jakuta (Santero Mix) [Open Bar Music].wav - 5.18min
+
+Ben A, Vedic - Keta (Original Mix) [Black Savana].mp3 - 5.98min
+
+Gianni Matteucci - Laibon (Extended Mix) [La Mishka].wav - 5.66min
+
+DJ Feevos - Early Rise (Original Mix) [VillaHangar].wav - 6.53min
+
+Rami Imam - Dune Kids [Connected Frontline].wav - 5.8min
+
+John Cacciatore - Freaques At Night (DJ Rain Studio 305 Mix) [Open Bar Music].wav - 4.8min
+
+DJ Feevos - Crossing Through (Original Mix) [VillaHangar].wav - 6.7min
+
+Kulest, Moiition - Demons (Original Mix) [Kemet Soul Records].mp3 - 5.43min
+
+Jimmix - Carrusel feat. Sampw (DJ Roberto Da'Silva Remix) [Powerbeat].wav - 3.68min
+
+DJ Sushy, Treasured Soul, Keletso - Amandla [CHRecords].mp3 - 7.98min
+
+Rami Imam - Akati [Connected Frontline].wav - 6.15min
+
+Albert Delgado - E Coisas [The Warrior Recordings].wav - 6.3min
+
+Tsongachild - Hope (Mist SA Remix) [YHV Records].mp3 - 8.53min
+
+Ma-b, CyburmusiQ - Hisia [Nervous Records].wav - 7.63min
+
+Feki Station - Habibi Habaytou (Original Mix) [YHV Records].mp3 - 6.36min
+
+MARVIN JULY, ElijahGates, Ndebele Royale - I Salute (Afro Dub) [July Creatives Entertainment].mp3 - 6.7min
+
+Albert Delgado - Acumbele (Original Mix) [Xumba Recordings].mp3 - 6.01min
+
+Deejay Vdot, Ricko The Vocalist - Adore (Original Mix) [Gentle Soul Records].mp3 - 7.46min
+
+Emanuele Esposito, Gianni Romano - Ay como hago feat Anlly Marin, Yimala (Aura & Sebastian Rivero Remix) [SwitchLab].mp3 - 5.33min
+
+Rodriguez G - Bamba [Disctance Records] - 11A - 121.00.mp3 - 8.6min
+
+Roderik Flohil, Smit Wietse - Barin (Si Tew Remix) [Phat Elephant].mp3 - 5.53min
+
 ## African and Organic House - 2022-12-14
 Mix can be found here: https://soundcloud.com/tim-susa/tim-susa-clrd16
 
