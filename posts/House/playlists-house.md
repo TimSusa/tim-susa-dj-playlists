@@ -2,6 +2,10 @@
 Here you will find all latest House Playlists with artists name and artist track.
 <a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
+## Mixes can be found here: 
+<a href="https://soundcloud.com/tim-susa">Tim Susa´s Mixes on SoundCloud</a>
+<a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
+
 ## Tim Susa´s Playlist MyHouseRadio.fm NYE 2022 Marathon
 DJ-dsl-let there be rock - 12B - 98.63.mp3 - 4.71min
 
