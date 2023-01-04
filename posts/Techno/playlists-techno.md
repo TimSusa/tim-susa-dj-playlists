@@ -2,6 +2,96 @@
 Here you will find all latest Techno Playlists with artists name and artist track.
 <a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
 
+## BRLN#20 Techno MIX - 2023-01-04
+Hybrasil - Abhean (Original Mix) [RSPX].mp3 - 6.73min
+
+Roberto Piscitelli - Above The Clouds (Original Mix) [Dissident Movement].mp3 - 7.36min
+
+Earwax (IT) - Advance (Original Mix) [Planet Rhythm].mp3 - 5.78min
+
+Ilario Alicante - Again (Original Mix) [Drumcode] - 3A - 130.00.mp3 - 6.51min
+
+dxrvo - Ahh (Original Mix) [PRX Records].mp3 - 4.86min
+
+Sam Wilson - Amalgama (Original Mix) [Dosis Records] - 10A - 99.75.mp3 - 6.3min
+
+s_h_u_y_a - Ameisensou (Original Mix) [Illegal Alien Records].mp3 - 5.81min
+
+Mattias Fridell and Alexander Johansson - Apparaten (Original Mix) [Symbolism] - 6A - 135.00.mp3 - 5.93min
+
+Rorganic - Anxiety (Original Mix) [DISSIDANCE].mp3 - 5.7min
+
+DJ Slip and Troy Geary - Area Boys (Original Mix) [Kanzleramt] - 9A - 140.00.mp3 - 5.21min
+
+JLTZ - Axess Att (Original Mix) [Ucker Records].mp3 - 6.63min
+
+Steve Bicknell - A Day In The Life 04 (Original Mix) [KR3 records].mp3 - 7.33min
+
+Richard Cleber - Bend Range (Original Mix) [Techno Vinyls Records] - 4A - 132.89.mp3 - 5.83min
+
+d_func. - Bio Structures 1.2 (Original Mix) [Molecular Recordings].mp3 - 6.33min
+
+Nobel Cortex - Blade (SYEP004) [Synergie ©].mp3 - 4.61min
+
+Kreisel, Monococ - Blood and Bones (Original Mix) [VapourTrail Records].mp3 - 6.66min
+
+Marco Piangiamore - Sblockdown [Trapez Ltd].mp3 - 5.55min
+
+Michael Klein - Body on Body (Original Mix) [Ratis] - 9A - 135.00.mp3 - 6min
+
+Ignez - Border [Somov Records].mp3 - 5.51min
+
+Deano (ZA) - Brainwave II (Original Mix) [Knowledge Imprint].mp3 - 5.76min
+
+Shlømo - Burned Hand (Original Mix) [Arts].mp3 - 5.76min
+
+Oscar Mulero - Carnage (Original Mix) [Token] - 6A - 135.00.mp3 - 5.5min
+
+DJ Dextro - Catalepsia (Original Mix) [Naked Lunch].mp3 - 5.53min
+
+Flits - Centipede (Original Mix) [Drawner Records] - 2A - 142.00.mp3 - 5.21min
+
+Rennie Foster and Moka Only - Connect Like Four (Samuel L Session Remix) [RF] - 11A - 123.00.mp3 - 6.26min
+
+Lesser Light - Corrupt Kernel (Original Mix) [Black Robin].mp3 - 5.15min
+
+Developer - Cowards Stay Silent (Original Mix) [Modularz].mp3 - 5.93min
+
+Marco Bänder - Daily Nutrition (Original Mix) [Phobiq] - 3A - 127.00.mp3 - 6.3min
+
+The Southern - Dealing With (Original Mix) [Suara] - 4A - 137.00.mp3 - 4.68min
+
+LYRIC (GER) - Declination (SYVA001) [Synergie ©].mp3 - 5.63min
+
+Hayden F - Decompression (Original Mix) [Trapez Ltd].mp3 - 7.58min
+
+Damon Vallero - Deep Scan (Original Mix) [Electracom].mp3 - 5.56min
+
+Fase Bipolar - Deeply Broken (Original Mix) [Sungate] - 1A - 130.00.mp3 - 5.96min
+
+Kashpitzky - Defensive Approach (Original Mix) [Be As One].mp3 - 5.25min
+
+Juan Trujillo - Delirio (Original Mix) [Simplecoding Recordings].mp3 - 5.06min
+
+Joachim Spieth - Dot (Original Mix) [A_Files].mp3 - 5.35min
+
+Ken Ishii - Double Knockout (Anderson Noise Remix) [Noise Music] - 8A - 133.00.mp3 - 5.96min
+
+Oscar Mulero - Elektra (Original Mix) [Token] - 1A - 137.00.mp3 - 5.2min
+
+Stephen Mahoney - Embers (Original Mix) [Children Of Tomorrow].mp3 - 5.56min
+
+Palma (PT) - Ender (Original Mix) [Toolroom Trax].mp3 - 6.15min
+
+Lucas Aguilera - Eneagrama (Original Mix) [JAM].mp3 - 5.81min
+
+Pulso AS - Erratic (Original Mix) [Take More Music Records].mp3 - 5.76min
+
+Oruam Zior - Equiz (Original Mix) [Combine Audio].mp3 - 5.28min
+
+R_D_V - Eruption (Original Mix) [Default Series].mp3 - 6.78min
+
+
 ## Detroit/Chicago/Berlin Techno  - 2022-12-19
 
 Marcelo Antonio - Ocean's Outro (Original Mix) [Antiterra]
