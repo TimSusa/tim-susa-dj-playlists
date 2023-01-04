@@ -7,6 +7,101 @@ Here you will find all latest House Playlists with artists name and artist track
 
 <a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
 
+## Tim Susa´s Minimal and Microhouse Playlist 2023-01-02
+Traumer - Mouth [Gettraum].wav - 6.53min
+
+10. Kreon & Lemos - Nice Day - 2A - 120.00.flac - 2.13min
+
+01-sleeper_thief-full_of_you-bex - 4A - 124.14.mp3 - 7.5min
+
+Zambiancki, Alex Dam - Manipuler (Original) [Pick Me Up].mp3 - 7.2min
+
+Bruno Pronsato - Viaje a la Luna - Em - 128.00.mp3 - 5.68min
+
+dj min
+x - a walk in the park (villalobos 'til thursday' remix) - Am - 124.97.mp3 - 15.5min
+
+Ultrakurt - Carnadada - Am - 128.99.mp3 - 8.93min
+
+audio werner--onandon-cmc - Fm - 126.97.mp3 - 12.1min
+
+c2-marc_houle-late_for_work-cute - 9A - 126.00.mp3 - 2.06min
+
+09 - Pan-Pot - Black Widow - 1A - 127.00.mp3 - 9.51min
+
+02 - Marcin Czubala - Super Conny - 6A - 125.00.mp3 - 6.21min
+
+Loco Dice - Seeing Through Shadows WwW.zMp3.PL - 6A - 127.73.mp3 - 7.55min
+
+Lessone - Beat Machine (Original Mix) [Street Groove].wav - 5.98min
+
+Wizards Are Lucky (Original Mix) - F#m - 128.00.mp3 - 6.36min
+
+Jamie jones - panic - 5A - 125.00.mp3 - 8.25min
+
+James Holden & Julie Thompson - Come to me [Dub mix] - Cm - 125.00.mp3 - 10.7min
+
+Reboot - Unity And Philanthropy [Cecille].wav - 7min
+
+Brunelli, Drunk & Play - Busted [CUFF].wav - 5.65min
+
+05-robert_hood-the_wheels_of_escape - 1A - 126.01.mp3 - 6.15min
+
+Jasmith - Little Helper 387 3 (Original Mix) [Little Helpers].wav - 6.23min
+
+17 - Gold Panda - Black Voices - 8A - 123.00.flac - 5.3min
+
+E dward! - Out at Night (Original Mix) [Introspection Recordings].wav - 6.2min
+
+Alex VMG - Spacey Atmo (Original Mix) [M5].wav - 5.21min
+
+Pan Pot - A Lanzelot von Camelot - D#m - 123.51.mp3 - 6.96min
+
+louderbach_-_reflected-kinky - C#m - 124.00.mp3 - 4.96min
+
+b1-marc_houle-pepper-cute - 2A - 121.99.mp3 - 5.5min
+
+marc antona - xtension (dan ghenacia's remix) [fnc021] - 5A - 126.00.mp3 - 9.83min
+
+104. Joel Mull - Harmonautic String (Steve Rachmad Remix) - 6A - 126.00.flac - 7.85min
+
+Seth Troxler - Friend Of Min
+e - 6A - 123.00.mp3 - 5.51min
+
+lefthandsoundsystem - Duneo (Original Mix) [Me Gusta Records].wav - 7.16min
+
+210. Joris Voorn - The Secret - 12A - 127.00.flac - 5.03min
+
+jrl - Levitation (Original Mix) [Min
+d Hub].mp3 - 7.23min
+
+Legit Trip - Voda [Floorpiece Digital].wav - 7.05min
+
+Alex Under - oh_balada_gris-jast (b1) - F#m - 126.07.mp3 - 6.38min
+
+Bruno pronsato The River (Sr.Replicante Sub Urban Mix) - Em - 125.00.mp3 - 6.13min
+
+01 Intro - 4A - 127.31.mp3 - 0.6min
+
+Ben Klock - Earthquake - Cm - 127.98.mp3 - 6.31min
+
+Florian Meindl - Sputnik - aleszylder www.feelthehouse.com - 5A - 122.00.mp3 - 7.6min
+
+02-sleeper_thief-chasing_rainbow-bex - 7A - 125.08.mp3 - 7.93min
+
+03-matt star-rocket (franco cinelli remix)-hqem - 8a - 12940.mp3 - 9.48min
+
+[POT 02-05] Wighnomy brothers & Robag Wruhme - Bobb - D#m - 128.88.mp3 - 4.28min
+
+04-oliver_hacke-untitled-bex - F - 128.00.mp3 - 8.03min
+
+Pyrmont - Hidden Purpose - 02 In Search Of Evidence - 4A - 120.11.flac - 16.9min
+
+Someone Else & Miguel Tutera - Peels - C#m - 126.00.mp3 - 8.58min
+
+GetCosy - You Mad (Buwalda Remix) [My Techno Weighs A Ton].wav - 5.41min
+
+
 ## Tim Susa´s Playlist MyHouseRadio.fm NYE 2022 Marathon
 DJ-dsl-let there be rock - 12B - 98.63.mp3 - 4.71min
 
