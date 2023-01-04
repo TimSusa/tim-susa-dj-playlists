@@ -1,6 +1,10 @@
 # Tim Susa´s DJ Playlists: All kinds of Techno Music
-Here you will find all latest Techno Playlists with artists name and artist track.
+## Here you will find all latest Techno Playlists with artists name and artist track.
 <a href="https://artists.spotify.com/c/de/artist/2yGbV5Lxc80co3RtXDNNgx/profile/overview">Tim Susa´s Spotify Playlists</a>
+
+## Mixes can be found here: 
+<a href="https://soundcloud.com/tim-susa">Tim Susa´s Mixes on SoundCloud</a>
+<a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
 
 ## BRLN#20 Techno MIX - 2023-01-04
 Hybrasil - Abhean (Original Mix) [RSPX].mp3 - 6.73min
