@@ -7,6 +7,47 @@ Here you will find all latest House Playlists with artists name and artist track
 
 <a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
 
+
+## Perspectives With Tim Susa on www.myhouseradio.fm
+
+Matthias Vogt Trio - Driver (Joash Remix) [INFRACom!].mp3 - 6.73min
+
+Sunny Reyne - To Blame [Bridge The Gap].mp3 - 3.53min
+
+Inkswel, Colonel Red - Time Ticking [Compost].wav - 3.91min
+
+Patrick Cowley - Floating [Dark Entries Records].mp3 - 6.56min
+
+Time Machine Gang, Angie Gooden, Christian Labbé - Day & Night (Original Mix) [Plaizir Muzic].mp3 - 6.1min
+
+Talc - De Gui Ding (The Reflex Revision) [Wah Wah 45s].mp3 - 7.7min
+
+DJ_K1 - Feels so Good [soul4music].mp3 - 4.33min
+
+Inkswel, Colonel Red - Undeniable [Compost].wav - 5.45min
+
+Shalon, Carl Rushing - You Are, I Am [Nik El Entertainment Group].mp3 - 7.11min
+
+Drop Out Orchestra, Mishell Ivon - He's Always There [Dafia Records].mp3 - 6.45min
+
+Sun Rhythms - Union (Original Mix) [DOBRO].mp3 - 3.61min
+
+Lovebirds - Straightfromtheheart [Teardrop Recordings].wav - 8.38min
+
+Margie Lomax - God's Greatest Gift To Man Is A Woman (Original Mix) [Back To Min
+e].mp3 - 5.18min
+
+Lovebirds - For Anna (Disco Heaven) [Teardrop Recordings].wav - 6.45min
+
+Young Pulse - Tell Me (Young Pulse Retouch) [Bandcamp].mp3 - 4.81min
+
+DMX Krew - Thought You Were the One [Permanent Vacation].wav - 3.35min
+
+Phonetic MusiQ - Memories (Original Mix) [GaMoNa Records].mp3 - 3.68min
+
+Lup Ino - Really Good (Originl Mix) [Hive Label].wav - 7.01min
+
+
 ## Tim Susa´s Minimal and Microhouse Playlist 2023-01-02
 Traumer - Mouth [Gettraum].wav - 6.53min
 
