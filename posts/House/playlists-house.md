@@ -8,6 +8,135 @@ Here you will find all latest House Playlists with artists name and artist track
 <a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
 
 
+## Perspectives With Tim Susa 2023 - 01 - 27
+
+From www.myhouseradio.fm
+
+Mixes here: 
+
+https://soundcloud.com/tim-susa/perspectives-with-tim-susa-live-on-air-2023-01-27
+
+https://www.mixcloud.com/timsusa/perspectives-with-tim-susa-live-on-air-2023-01-27/
+
+
+Osaka Monaurail, Casey Malone - Do You Really Want To Rescue Me (Instrumental) [Ubiquity Records].mp3 - 2.5min
+
+Yamil - Ritual [Pieces of Life].wav - 6.4min
+
+Billy Preston-How Great Thou Art-Master--130.00bpm-C.wav - 3.8min
+
+Drop-Perspectives With Tim Susa Jingle 2022-12-22 0523.mp3 - 0.41min
+
+Billy Preston-How Great Thou Art-Master--130.00bpm-C.wav - 3.8min
+
+Lukado - Tell Me Now (Amapiano Mix) [Audio Kingz Records].mp3 - 7.43min
+
+Yamil - Amanecer [Pieces of Life].wav - 7.6min
+
+Errol.ex - 1997 (Original Mix) [Colour In Music].wav - 6.41min
+
+marc antona - xtension (dan ghenacia's remix) [fnc021] - 5A - 126.00.mp3 - 9.83min
+
+Bruno pronsato The River (Sr.Replicante Sub Urban Mix) - Em - 125.00.mp3 - 6.13min
+
+Christian Löffler - Blind.wav - 5.41min
+
+Hauy - Akana (Original Mix) [Hoomidaas] 0001.mp3 - 7.35min
+
+Randall Jones, Dani Hageman - Angel (Lorenzo Dada Remix) [Earthly Delights].wav - 6.98min
+
+Thakzin - The Magnificent Dance [Sondela Recordings].wav - 7.08min
+
+Mough Mokgerehli, DJ Khume - Umjuluko [Are We Groovin'].wav - 5.85min
+
+Lukado - 25 Fingers (Amapiano Mix) [Audio Kingz Records].mp3 - 7.7min
+
+Gorje Hewek, Amonita, Makebo - Never Been [Shanti Radio].wav - 7.6min
+
+Art Of Tones - Lucky Day (Bass Dub Mix) [Mood Funk Records].wav - 5.08min
+
+David Bay - be here with me - Edit [Zissou Records].mp3 - 4.16min
+
+Ken@Work - Can You Keep A Secret (Original Mix) [Springbok Records].mp3 - 4.73min
+
+Disco Feelings - Chocolate (Original Mix) [Duchesse].mp3 - 5.03min
+
+La Riff - C'est Tabou Ça (Original Mix) [Mole Music].mp3 - 6.71min
+
+Jean Aubergine - Disco Numberwang (Jean's Value Added Sax Dub) [Z Records].wav - 6.45min
+
+Chocolate Dice - A Little Something Different (Original Mix) [Grin Traxx].mp3 - 6.08min
+
+Jet Boot Jack, ROMBE4T - Good Love [Feverball].mp3 - 5.81min
+
+84Bit - Cmon! (Fizzikx Remix) [Transcendance Music].mp3 - 7.1min
+
+Robbast - Costanero [theBasement Discos].mp3 - 6.21min
+
+Branco Simonetti - Diso Baby [Material Trax].mp3 - 6.68min
+
+03. Chateau.mp3 - 4.55min
+
+Moppa & Dekka - All Night [Four40 Records].mp3 - 5.15min
+
+
+## DBMN#21
+
+Mix https://soundcloud.com/tim-susa/tim-susa-dbmn-21wav
+
+
+Floating Points, Pharoah Sanders, The London Symphony Orchestra - Movement 8 (Original Mix) [Luaka Bop].mp3 - 6.31min
+
+Mk Jay SA - Blue Waves (Original Mix) [Round Robin Recordings].wav - 6.56min
+
+Mk Jay SA - Deep Ocean (Original Mix) [Round Robin Recordings].wav - 6.73min
+
+Mk Jay SA - Gulper (Original Mix) [Round Robin Recordings].wav - 6.11min
+
+Krissky - Sakar [Crossfade Sounds].wav - 6.63min
+
+Evil Tapes - Blood on the Streets (Original Mix) [Shaboom Black].mp3 - 6.05min
+
+Mike.D - Cadena Evolutiva (MINT (JPN) Remix) [Beachside Limited].wav - 6.95min
+
+Beople - Gale [Traum].mp3 - 7.28min
+
+Anton Khalemsky - B1B2 (Original Mix) [Deep Tech Records].mp3 - 5.45min
+
+Iacob, Zebra Rec. - Dans in doi (Original Mix) [Zebra Rec.].mp3 - 7.15min
+
+Barac - Prihodiste [Cronos].wav - 10.4min
+
+Sonnen Blumen Kerne - Opomo (Original Mix) [HEISENBERG].mp3 - 7.81min
+
+Lady Jane Beach - Motorcycle (K.I.M Remix) [Here To Hell].mp3 - 5.56min
+
+Debora Grzeszczuk - Elevated Mood (Original Mix) [Occultech Recordings].mp3 - 6.18min
+
+Denis Andreev - Shantaram (Original Mix) [Micronica Records].mp3 - 8min
+
+Javier Labarca - Chocamo (Original) [Agua y Sed].wav - 8.26min
+
+Illan Nicciani - Insouciance (Original Mix) [Leftback Intercities].mp3 - 12min
+
+F-NIX - Kren [Agua y Sed].wav - 7.96min
+
+Delator - Previous Knowledge (Reu.ven Remix) [Totoyov].mp3 - 6.9min
+
+Nektar Agu - The Dangerous Feedback (Original Mix) [Jiyu].mp3 - 8.85min
+
+Bizen Lopez - La Reflexion [Sibil-la Music].wav - 6.31min
+
+Funkytino - Finito (Original Mix) [ALTR Records].mp3 - 6.15min
+
+Reelow, You.Roo - Lamb Or Ghini [Reecords].wav - 6.83min
+
+ACA (YU) - Suavecito (Original Mix) [Rawsome Recordings].mp3 - 5.88min
+
+Deepchord - Leafiness (Original Mix) [Soma Records].mp3 - 6.43min
+
+
+
 ## Perspectives With Tim Susa on www.myhouseradio.fm
 
 Matthias Vogt Trio - Driver (Joash Remix) [INFRACom!].mp3 - 6.73min
