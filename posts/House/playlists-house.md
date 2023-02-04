@@ -7,6 +7,65 @@ Here you will find all latest House Playlists with artists name and artist track
 
 <a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
 
+## Perspectives With Tim Susa 2023 - 02 -03 
+Floating Points, Pharoah Sanders, The London Symphony Orchestra - Movement 8 (Original Mix) [Luaka Bop
+
+Laurent Garnier - Le Voyage De Simone (2020 Remastered Version) [F Communications]
+
+DeepSlave M - Grandiose (Original Mix) [Deep Clicks]
+
+Andrey Djackonda - Subaltnor (Alvaro Hylander Remix) [DeepWit Recordings]
+
+Tano THS & Alex DJ - Deep Sensation (Original Mix) [Smokin' Beat]
+
+Cabbie - Long Road To Chicago (Deep Mix) [AWK Recordings]
+
+Vasily Umanets - Fly the Air (Original Mix) [Mango Sounds]
+
+KPD - Clubs In NY (Mo'Cream Remix) [Blockhead Recordings]
+
+Westside Angel - Freak Inside (Original Mix) [Deep Compact Records]
+
+Bonilla - Don't Go (Original Mix) [Whoyostro]
+
+Lunoize - Trip On This [AVOTRE]
+
+Brett Gould, Penny F - Black Light [ORIGINS RCRDS]
+
+Melodymann - Keep On Doing It (Original Mix) [Melodymathics]
+
+Trevor Vichas, Jamar Hughes - Lost Love (Original Mix) [Dustpan Recordings]
+
+Le Babar - You Can Never Let Me Go (Original Mix) [Believe In Disco]
+
+Dan Corco, Harleatz - The Thread (Extended Mix) [House 'n Chips]
+
+JoBu - Glad It's Night [Odour Recordings]
+
+Ruben Rosschild - Be the Star (feat Star Stern) (Original Mix) [Record Dust Recordings]
+
+Jason Walker - Dance A Little (Da Funk Junkies Jackin Dub) [i Am House]
+
+DJ Rendo - Able All Nite (Original Mix) [Disco Dealers]
+
+Jonk & Spook - House Anthem (Extended Mix) [Street House Records]
+
+Lan Damon - Not Giving Up (Original Mix) [Whore House]
+
+Jonasclean, Jackson Swaby - Psykick (Original Mix) [Our Yunus Records]
+
+Frank Fonema, Ciskoted - Show Me the Way [Les Folies Digitales]
+
+Monoton (DE) - Strawberry Funk (Original Mix) [Drehpunkt Records]
+
+Raffaele Ciavolino - Take It [Whitebeard Records]
+
+Zove - Toma [MONOSIDE]
+
+CEV's - Aidan (Original Mix) [Transcendance Music]
+
+Hatiras, Folkness - Dance Avec Moi (Original) [Spacedisco Records]
+
 
 ## Perspectives With Tim Susa 2023 - 01 - 27
 

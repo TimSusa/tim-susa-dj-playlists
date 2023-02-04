@@ -7,9 +7,153 @@
 <a href="https://mixcloud.com/tim.susa">Tim Susa´s Mixes on Mixcloud</a>
 
 
+## BRLN#22 Techno MIX 
+Marcal - Never Wrote This [Enemy Records]
+
+Loss Of Balance - Pitchmod (Original Mix) 
+
+Greg Gow - I Knew Techno (Tunnel Mix) [Restr
+
+Kashpitzky - Forgot Your Name [Out of Place]
+
+Developer - All the Way (Original Mix) [Deve
+
+Lewis Fautzi - Symptomatic (Rødhåd Remix) 
+
+ANNĒ - Wake Up And Dance [Soma Records]
+
+Dykkon, Another Machines - Reunion 3 [DkN
+
+Fvndo - Samarskite (Original Mix) [MALöR Rec
+
+Ben Reymann - Take It Off (SYVA001) [Synergi
+
+CRAVO - Domain (Original Mix) [SK Eleven] - 
+
+RNGD - Trindade 1.2 [RNGD]
+
+Ancient Astronaut Theorists - Alien Brain (O
+
+Orion - White Flag (Original Mix) [Absence o
+
+Audio Units - Zima Blue (Original Mix) [Devo
+
+Maccari - Misbehavior (Original Mix) [Lemos]
+
+O'Fella - Soul Chime (Original Mix) [O'Fella
+
+Callum Plant - Fathers Of Verse (Original Mi
+
+Carlos Perez, K-Style - Synergy (Original Mi
+ Mull - Mother (Original Mix) [H-Pro
+
+Ben Ritz - Easily Disturbed (Original Mix) [
+
+Agent Orange DJ - Work That Shhh (Original M
+
+Anil Butun, Mehmet Özbek - Twisted [EXTIMA]
+
+Maccari, AKA the Alien - Massimo [Music4Alie
+
+Markantonio - Bangers (Original Mix) [Unrili
+
+Audio Units - Ancient Manifold (Secus Remix)
+
+Augusto Taito - Rawscillator [Árido Records]
+
+Anfisa Letyago - Not There (Chris Liebing Re
+
+Bartig Move - Insistencia (Original Mix) [Ch
+
+BAUGRUPPE90 - Action (Original Mix) [CAPACIT
+
+Pulso - Polarization (Level) (Original Mix) 
+
+Cailin - One More (Original Mix) [Symbolism]
+
+Drexciya - Aquatic Cataclysm (Original Mix) 
+
+
+## BRLN#21 Techno MIX
+
+Audio Units - Vostok Space Program (Original Mix) [[R]3volution
+
+Decoder - Amrit [Inguma]
+
+Audio Units - Vostok Space Program (Original Mix) [[R]3volution]
+
+DRDG - Axonisos (Original Mix) [[R]3volution Uncod3d]
+
+Markantonio - Bangers (Original Mix) [Unrilis]
+
+Axel Karakasis - Bloated Discord (Original Mix) [Remain Records]
+
+SNØRZ - Black Remote (Original) [Emphatic Records]
+
+BLK BETTY - Buggin Loco (Original Mix) [Suara]
+
+Procombo - Captivation [Suara]
+
+BRÄLLE - Cold Steel (Original Mix) [Default Series]
+
+Axel Karakasis - Confession (Original Mix) [Remain Records]
+
+Ben Ritz - Crystalline (Original Mix) [Fixed Rhythms]
+
+Chontane - Dira (Original Mix) [Index Marcel Fengler]
+
+Casual Treatment, Fergus Sweetland - Dorian Moods (Original) [Arketip Discs]
+
+Drexciya - Dr. Blowfins' Black Storm Stabilizing Spheres (Original Mix) [Tresor Records]
+
+PAGANO - Emanations (Original Mix) [Tronic]
+
+Alfonso Forte - Fast Delivery (Original Mix) [Prospect Records] - 6A - 136.00
+
+A Thousand Details, Dykkon - Fistering (Original Mix) [DkN Selections]
+
+NEEN - Fonderia (Original Mix) [Concepto Hipnotico]
+
+A Thousand Details - Clueless Panko (Original Mix) [ATD]
+
+Axel Karakasis - Grace (Original Mix) [Remain Records]
+
+Audio Units - G-Type Sequence Star (Original Mix) [Devotion Records]
+
+Cari Lekebusch - Hangman (Original Mix) [H-Productions] - 4A - 141.00
+
+Chris von B. - Insanity Wave (Original Mix) [Unknown Territory] - 6A - 132.00
+
+Franz Jager - Joga Bonita (Original Mix) [MALöR Records]
+
+ARKAN - Keen Vision (Original Mix) [Drawner Records]
+
+Silvano Del Gado - La Suerte (Techno Mix) [DEL GADO REC]
+
+Agent Orange DJ - Love The Feeling (Original Mix) [Tronic]
+
+Another Machines - Magnetic Induction (Jose Pouj Remix) [Injected Poison Records]
+
+Jin-Su - Mambo (Original Mix) [CALOSC]
+
+Sigvard - Memories Of A Broken Heart (Original Mix) [Global Underground]
+
+The Advent, Flug - Midnight Storm (Jack Mix) [EXISTENTIA]
+
+Bleur & MB1 - Moon Stalker (Original Mix) [Korpus 9]
+
+Chicago Loop - Nineteen94 [Tronic]
+
+Etapp Kyle - None (Original Mix) [Index Marcel Fengler]
+
+Cari Lekebusch - Outside In (Original Mix) [H-Productions] - 1A - 130
+
+Biemsix - Peeps (Original Mix) [Symbolism] - 3A - 137.00
+
 
 ## BRLN#20 Techno MIX - 2023-01-04
-Hybrasil - Abhean (Original Mix) [RSPX].mp3 - 6.73min
+Hybrasil - Abhean (Original Mix) [RSPX]
+
 
 Roberto Piscitelli - Above The Clouds (Original Mix) [Dissident Movement].mp3 - 7.36min
 
